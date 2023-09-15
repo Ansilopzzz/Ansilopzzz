@@ -6,4 +6,3 @@ You can find the source codes for the ddos attack which are less effective and c
 If you need a very effective bot for taking down companies, then message me in whatsapp.
 You can find the link in my profile. 
 The hydra is available at IRS 1266/- which is both effective and available at less cost.
-The Saphyra is the most powerfull one in my whole projects. It can take down companies.
